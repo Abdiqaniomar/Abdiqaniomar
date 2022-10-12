@@ -1,4 +1,4 @@
-# Hi 👋, I’m Abdiqani
+# Hi 👋, I’m Abdiqani Omar
 - 👀 I’m interested in coding
 - 📫 How to reach me abdiqanixaliye1@gmail.com
 
